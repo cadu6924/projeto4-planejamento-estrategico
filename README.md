@@ -28,7 +28,7 @@ Metas de Longo Prazo
 
     Tornar-se um parceiro oficial da Konami no Brasil.
 
-Planos de Ação
+PlanOs de Ação
 
     Ano 1: Fortalecer a presença online com um site e redes sociais interativas.
 
